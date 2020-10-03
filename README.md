@@ -1,0 +1,1 @@
+# Detailed-Analysis-of-Global-Terrorism
